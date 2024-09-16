@@ -1,4 +1,4 @@
-- El gran yeruza que siempre va aprender todo aunque sea aburrio
+- El gran yeruza que siempre va aprender todo aunque sea aburrido
 - My bro sosa 🐐👌🔥🔥
 <!---
 Yzyruza/Yzyruza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
